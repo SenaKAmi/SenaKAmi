@@ -10,7 +10,7 @@
 – Local insights
 – Women-focused education
 -I’d love to hear from you.🧡
-- 🌍 Check out my website:[Website]( www.bitfiasi.org) | Send me an email via [Professional Email](sena@bitfiasi.org) — let’s collaborate or partner to drive meaningful impact!
+- 🌍 Check out my website:[Website](www.bitfiasi.org) | Send me an email via [Professional Email](sena@bitfiasi.org) — let’s collaborate or partner to drive meaningful impact!
 - 📫 Other ways to reach me: [LinkedIn](www.linkedin.com/in/lydia-sena-ami-kudowor-b83370ab) | [Twitter/X](https://x.com/SenaKAmi) | [Email](senalee001@gmail.com) 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I create handmade coconut cups, lamps, and vintage art — and I’m currently in my Mum-fit journey!
